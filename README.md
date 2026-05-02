@@ -56,7 +56,6 @@ Check out my creative portfolio and technical troubleshooting content:
 ## 📫 Connect with Me
 * **WhatsApp:** [+254 790 435 584](https://wa.me/254790435584)
 * **Email:** [ngumidaniel425@gmail.com](mailto:ngumidaniel425@gmail.com)
-* **LinkedIn:** [Daniel Githinji](https://www.linkedin.com/in/dantyzmediatech@gmail.com)
-
+* **LinkedIn:** [Daniel Githinji](https://www.linkedin.com/in/dantyzmediatech@gmail.com) * **Facebook:** [Danstan Danty Miku](https://www.facebook.com/profile.php?id=61563839114232),[Dantyz Media Page](https://www.facebook.com/profile.php?id=61571415613827).
 ---
 *"Building the future, one scan at a time."*
